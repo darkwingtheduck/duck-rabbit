@@ -42,7 +42,7 @@ Truth punishes misalignment. Reality is not sentimental.
 
 ## V. Central Image: Perception Split
 
-![Duck-Rabbit Figure](duck-rabbit-placeholder.png)
+![Duck-Rabbit Figure](images/duck-rabbit.png)
 
 This figure illustrates the principle: the same structure can yield two different truths, depending on foundational orientation.
 
@@ -50,7 +50,7 @@ This figure illustrates the principle: the same structure can yield two differen
 
 ## VI. Purpose
 
-This framework is a ruler. Use it to measure systems, ideologies, and beliefs. 
+This framework is a ruler. Use it to measure systems, ideologies, and beliefs.
 
 It will show why most are blind by design.
 
