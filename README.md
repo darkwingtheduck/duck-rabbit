@@ -56,6 +56,7 @@ It will show why most are blind by design.
 
 It is not for everyone. But those who see will recognize it.
 
-[![Watch Kris Kristofferson - To Beat The Devil](https://www.youtube.com/watch?v=faF0wOsVucw&t=139s))
+[Kris Kristofferson - To Beat The Devil]](https://www.youtube.com/watch?v=faF0wOsVucw&t=139s)
+ 
 
 
