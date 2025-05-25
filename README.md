@@ -56,5 +56,6 @@ It will show why most are blind by design.
 
 It is not for everyone. But those who see will recognize it.
 
-> This is not abstraction for abstraction's sake. This is truth under gravity.
+[![Watch Kris Kristofferson - To Beat The Devil](https://youtu.be/faF0wOsVucw?t=139)](https://www.youtube.com/watch?v=faFHRTr70f8)
+
 
