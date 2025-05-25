@@ -56,7 +56,13 @@ It will show why most are blind by design.
 
 It is not for everyone. But those who see will recognize it.
 
+Existence intentionally sets up resistance as an existential test—like "Newton’s law". For every authentic truth-seeking effort, there is unavoidable resistance, ensuring only genuine, deeply committed seekers ever fully awaken.
+
 [Kris Kristofferson - To Beat The Devil](https://www.youtube.com/watch?v=faF0wOsVucw&t=139s)
+
+[Leap of faith](https://9gag.com/gag/a6Z24mL)
+
+
  
 
 
